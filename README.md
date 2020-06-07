@@ -1,2 +1,2 @@
-# arihantjain.github.io
+# ajarihant7.github.io
 Personal Blog
